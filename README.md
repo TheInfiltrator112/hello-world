@@ -1,2 +1,1 @@
-# hello-world
-y do i have 2 do dis
+hi im a cool guy who is very cool and yes i like coding plz save me
